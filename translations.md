@@ -127,6 +127,95 @@ A: To enjoy it.
 
 ***Sawano:*** I think it's from listening to a variety of different songs
 
+## Nanatsu no Taizai Song Descriptions
+
+> Found some rough translations of the interview where Sawano describes each track on the first NnT OST. Some really interesting stuff here (it seems the translator is unsure on some things, so he mentioned those with a ?). The reason I didn't link the interview is because it was in Russian, and I used my own translation skills along with some tools to make sure that most people here understand this.
+Prepare for a lot of posts in a row.
+
+**1. Perfect Time:**
+
+In this song I wanted to have sort of a "choir" of singing. Not all vocals are included in this track, but this is the only vocal song in The Seven Deadly Sins. I was happy when I heard this song in the first episode of the anime. Some think that this is a song about Elizabeth, as the lyrics start with "Elizabeth". But in fact it is about Meliodas. In the first half, I used celtic elements, depicting England *(?)**. In my previous work, I did not include celtic music in the songs, so this track has fresh and new emotions that I really like.
+
+**2. 7角:the1:**
+
+The title stands for The Seven Deadly Sins. While the first track Perfect Time is the theme of Meliodas, this second track is the main theme of the anime. The 17th song Big罪罪罪罪罪罪罪 uses a similar motif to the main theme.
+
+**3. 銅鑼Gong4N:**
+
+This song is used in each of the intros at the beginning of the episodes. But originally, this song was written for fight scenes. I thought that the track 7角:the1 would be more fitting for the intros *(?)*. For the orchestral part I used the bandoneon (musical instrument), as well as for Perfect Time. This track is one of my favorites.
+
+**4. dEvilGODfamily復活動:**
+
+This song contains two songs in the first and second half. Both of them represent the "revival of the demons". In the second half of the song there are voices by the president of Legendoor (Horiguchi) and myself (laughs). Since all the lyrics were improvised, many thought that the song just has meaningless words (laughs). But I think that you can understand that we were saying "Great Sin" in the song *(?)*.
+
+**5. 世紀4:**
+
+This orchestral song represesnts the Holy Knights' Kingdom Liones. I was told to write a song "with a heavy atmosphere". I wrote this song to have a dark atmosphere and tried to express some sort of changes in the Kingdom, some sort of feeling that it had been attacked by something unknown.
+
+**6. YoSay&B→A:**
+
+The second half of the song is the motif for Ban's prison escape *(?)*. The first half of the song is used for flashback scenes with Elaine. By the way, B → A in the title means Ban.
+
+**7. 广2tree02 ネ日|-血:**
+
+The title of the song stands for Blood of Demon. The song represents the demons. The song contains cries. From the beginning to the middle of the song, you can only hear my voice. I'm pronouncing the names of the seven deadly sins, for example "Dragon Sin", "Serpent Sin" etc. Please do not be disappointed if you find out that it was in fact my voice in the song (laughs). These words are present towards the end of the song as "zai" and "sin". I asked the members of the recording team to help me with singing these words.
+
+**8. KAN594:**
+
+This song was written for the four men who guarded the Baste Dungeon. I was told to write a song with the theme of "transforming attacks/attackers" *(?)* (laughs). Something about "strange enemies attacking, with a suspicious and aggressive atmosphere". In this orchestral song there is a completely different atmosphere compared to the other songs for the fight scenes.
+
+**9. Eri0ne$:**
+
+The theme of Elizabeth - one of my favorite songs. In fact, this song was written 10 years ago. I though that the song perfectly fits the description of "feelings, emotions and faith - Elizabeth.". Therefore, I have included this song in the soundtrack, only slightly changing the arrangement. This song does not represent the Elizabeth that Meliodas protects. In this song, Elizabeth will do anything to help the others.
+
+**10. 駄メ男rIs:**
+
+This is the theme song of Meliodas, but not for the serious and action-oriented scenes. Its' meant for funny and comical scenes. For example, the scene where he sexually harasses Elizabeth. In my previous work there wasn't much improvisation. This song is very improvised. I wrote this funny song for quite a long time *(?)*.
+
+**11. EP←K:**
+
+The first and second half of this song are different songs. In the first half of the song, it sounds a bit like a modified *銅鑼Gong4N*. In the first episode there is a chase scene with knights and Elizabeth. This song plays in that scene. (explanation of the title: EP←K = Elizabeth Princess<-Knights). The second half of the track is actually supposed to be a seperate song. I felt like I had to do something similar. I often write ad-lib songs on the piano. These songs are not mixed and not included in the soundtrack. But I wanted to put this song somewhere and it turned out to be merged with the first half of this track.
+
+**12. Deerン怒&過多6-$:**
+
+The first half of this song is the theme of Diana, and the second is the theme of Hawk. For the theme of Diana I was given orders to use "large" instruments. So I used drums, tubas and kettledrums. For Hawk the orders were "it must sound ridiculous". So I tried to apply a sense of fun through a variety of tools and instruments. For example I used a toy piano.
+
+**13. mouth×宣華 ○2LI:**
+
+This song is theme of the festival fight. I tried to express the feeling of festivals in this song. You can hear "Ho!" and "Huh!" screaming in this song. It was my voice, as well as President and guitarist Tsubakimoto-kun's voice (laughs). There is also a woman's voice, which was made on a computer.
+
+**14. OH92&HrBrM:**
+
+This is the theme of Helbram and the Kingdom of Liones *(?)*. While writing the song, I imagined the image of Britain, so I had the orchestra use bagpipes.
+
+**15. GR雷:**
+
+The first and second half are different songs. The first half was used in episode 8 in the last scene with Elaine. It sounded like *YoSay&B→A* with a new arrangement. Initially I did not plan to include the first half of this song in the soundtrack, as it was used to promote the anime *(?)*. The second half of the song was written to fit Gilthunder. Since he was originally a villain, I wanted to make a scary song. Using a synthesizer and organ, I wanted to do something unusual. I also put in a cello with electronics and processed sounds.
+
+**16. らゲ-sin:**
+
+This is a song for Meliodas, but it focuses on his past. There are also other songs on this OST that are about Meliodas. But in this song, there are motifs of sadness and tragedy, made with strings and a piano.
+
+**17. Big罪罪罪罪罪罪罪:**
+
+This is the theme of The Seven Deadly Sins. It uses the same motif as the second song in the soundtrack. I was told that this track will be used in the first episode of the anime. So I did a longer arrangement of the main theme. At the beginning of the soundtrack recording, I thought what song I should put at the end of the soundtrack, *7角:the1* or *Big罪罪罪罪罪罪罪*. I decided on this track because I think it sounded like a better song to end on.
+
+## FANTASIA Comments
+
+> So the site contains quite a bit of text where Sawano comments on the CD. VK translated it and I used their translation as a base for my own one (as Russian is much easier for me than Japanese). There's some parts here where I was unsure on what they meant, but other than that it should be pretty informative. *Original text taken by VK from this site: http://www.rittor-music.co.jp/s/sawanohiroyuki/)*
+
+> Comments by Hiroyuki Sawano on the special CD which includes works that he made during his student years.
+
+While studying at school I made a CD that contains songs that are very similar to fantasy soundtracks. The album is called *FANTASIA*. Tracks 1-7 on this CD are very fantasy-like (or part of the *FANTASIA* section).
+
+At first I really liked *Final Fantasy*. But after listening to Mademoiselle Mozart by Tetsuya Komuro, I could feel the atmosphere of fantasy. Inspired by this, I did all of the songs on a YAMAHA EOS B900. This work for me was sort of an experiment, where I tried to reproduce an orchestra.
+
+It all starts with a quiet part in the first song. Second song (unsure on what is said here). The third song is a theme of a city with a happy melody. The fourth song is heroic music fitting for a hero who goes around the world. The fifth song is a romance song between the hero and the heroine. The sixth song is a boss theme. The seventh song is the ending theme. The ninth song is a new version of `1st Mov: [Open a title page] ~ 物語 の 始 ま り ~`. I added some new parts but the arrangement hasn't changed much overall.
+
+I put the CD in the book for young readers who dream of making music and are confident in their abilities and in their music. When I was young I heard that music critics listened to this CD *(?)*. And it was not a very good response from their side *(again, a bit unsure on this)*. But I have not changed much since then. In fact, when I was arranging the ninth song, I felt that I could use it for some games. So I want young composers to listen to this CD, be convinced in what they are doing now and continue their work in the future.
+
+Incidentally, the eighth song is in the style of techno, which I wrote while in school for my friend's film.
+
 ## Kabaneri of the Iron Fortress (w/ Tetsuro Araki, director)
 
 > Interview with Hiroyuki Sawano and Tetsuro Araki, where they talk about their work on the anime 'Kabaneri of the Iron Fortress'.
