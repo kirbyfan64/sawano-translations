@@ -4,7 +4,7 @@
 
 I pulled these translations from the [Sawano Discord fan server](https://discord.gg/48vhc2c) and posted them here to make them more accessible for other people.
 
-Translations by **@Rathlion**, based on the VK Russion translations.
+Translations from Russian to English by **@Rathlion**, and translations from Japanese to English are from [the VK Sawano fan page](https://vk.com/hiroyukisawano).
 
 *This page is powered by [Docute](https://docute.js.org/).*
 
