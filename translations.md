@@ -8,6 +8,26 @@ Translations from Russian to English by **@Rathlion**, and translations from Jap
 
 *This page is powered by [Docute](https://docute.js.org/).*
 
+## Gundam Unicorn
+
+> *About the work on GUNDAM UNICORN*
+
+**Q: How did you feel when you were offered to make the music for "MOBILE SUIT GUNDAM UNICORN"?**
+
+***HS:*** It has always been a dream of mine to make music for the Gundam series. When I was in high school, films from the MOBILE SUIT GUNDAM series were shown on television from time to time. Since that time, it has been 20 years, and I am still fascinated by the original Gundam. At that time, I decided that "When I become a really good composer, I will work on something connected to Gundam". When I received an offer to make music for it, I was both surprised and pleased.
+
+**Q: When you saw the finished product, how did you feel?**
+
+***HS:*** To be frank, I didn't know what the scale of it was. I heard that it was going to become an OVA, and was shocked when I saw Episode 1. It was then that I felt I had become part of this really big project. I really like the use of music in the battle scene in the beginning (the song MOBILE SUIT), and it was a great feeling when the animation and music worked perfectly together. This is one of my favorite scenes. And hearing my music and seeing the world of Gundam, which I tried to make my work fit to, I felt the emotions overwhelm me. This was my personal victory, when at age 29 I became involved in MOBILE SUIT GUNDAM UNICORN, and I was very happy to participate in it.
+
+**Q: Please tell us your favorite songs.**
+
+***HS:*** I put a lot of emphasis on the main theme that plays during the Unicorn launch scene (the song UNICORN). Regarding the 12th track on the OST (the song ON YOUR MARK), a solo piano version was used during a dialogue scene with Banagher and Micott. In a conversation with the anime creators about the music, I mentioned that this track was created based on my imagining of the Gundam world 5 years ago. I created this track purely based on my view of the world. 5 years ago, I thought if I could ever work on Gundam, I would like for ON YOUR MARK to be used in some scenes.
+
+**Q: Last but not least, do you have anything to say to your fans?**
+
+***HS:*** This time, creating the music for UC, I was given quite a lot of time, which made it possible to compose each song with care. This work has become an important part of my music and my life. I would be very happy if you enjoyed the music in Gundam UC.
+
 ## [nZk]004 Q&A
 
 > *As you know, in 2016 the live concert [nZk]004 was held. And with this, the special Q&A project for the concert was done, in which fans asked questions from Sawano. All questions and answers were published in the concert booklet for 004. Here are the translations:*
